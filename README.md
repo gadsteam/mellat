@@ -1,1 +1,1 @@
-https://jakobai1.buzz
+https://ratorratooo.click
