@@ -1,1 +1,1 @@
-https://ratorratooo.click
+ratorratooo.click
