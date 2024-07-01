@@ -1,1 +1,1 @@
-website.com
+onlyforratapk1.buzz/app
