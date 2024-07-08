@@ -1,1 +1,1 @@
-supplychangelow8.buzz/rat/websites/mellat
+supplychangelow8.buzz/rat/apps/mellat
