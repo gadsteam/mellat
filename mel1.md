@@ -1,1 +1,1 @@
-seedifyeai1.buzz/rat/apps/mellat
+1apppro.buzz/rat/apps/mellat
