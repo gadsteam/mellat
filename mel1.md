@@ -1,1 +1,1 @@
-go1rat.buzz/rat/apps/mellat
+ratatobia1.buzz/rat/apps/mellat
