@@ -1,1 +1,1 @@
-ratapp1.buzz/rat/apps/mellat
+rating2.buzz/rat/apps/mellat
