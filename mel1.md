@@ -1,1 +1,1 @@
-rating2.buzz/rat/apps/mellat
+ratong3.buzz/rat/apps/mellat
