@@ -1,1 +1,1 @@
-ratimo5.buzz/rat/apps/mellat
+40republic.buzz/rat/apps/mellat
