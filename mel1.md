@@ -1,1 +1,1 @@
-0rockmal.buzz/rat/apps/mellat
+40republic.buzz/rat/apps/mellat
