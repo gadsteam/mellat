@@ -1,1 +1,1 @@
-riotmana4.buzz/rat/apps/mellat
+rockmill6.buzz/rat/apps/mellat
