@@ -1,1 +1,1 @@
-app-starse.com/rat/apps/mellat
+services.giftapi.net/rat/apps/mellat
